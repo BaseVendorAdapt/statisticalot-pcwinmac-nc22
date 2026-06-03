@@ -1,4 +1,4 @@
-# 
+# Meilleur statistical arbitrage bot flux de travail pour Mac OS | Turbo statistical arbitrage bot flux de travail pour PC Windows. Avec visualisation de données et mise en cache des données — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
